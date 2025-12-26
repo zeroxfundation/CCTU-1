@@ -44,4 +44,3 @@ O controle da informação através de silos fechados (Big Techs) gera uma "Grav
 **"O universo não é feito de bits, é feito de relações geométricas."**
 
 ---
-*(Insira aqui suas chaves de carteira para apoio descentralizado)*
